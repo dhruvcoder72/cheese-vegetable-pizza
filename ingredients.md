@@ -1,0 +1,1 @@
+small bowl of flour, 3 spoons of curd, a quarter of cup of water, 3 amul cheese cubes, half green capsicum, half anion, 1 tomatoe, origano, red chilli flakes;
